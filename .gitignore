@@ -7,4 +7,11 @@ main.fls
 main.log
 main.aux
 announcements.tex
+announce_map.md
 welcome.tex
+discussion.tex
+verse.md
+verse.tex
+*.swp
+*.png
+

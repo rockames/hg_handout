@@ -1,17 +1,25 @@
 # Announcements
 
-## Hick Nite
-Last (of the year) Fourth Friday Fun Festivities event.
-Come dressed as a hillbilly/redneck.  There will be games and food.  Bring instruments!
+## Upcoming Events
 
- - **When:** Friday, April 25th, 7:00pm
- - **Where:** Doug's House (404 N Dakota Drive, Ames)
- - **Who:** Rockers and friends
+### Fall Conference
+Get ready for three life-changing days of Biblical teaching, passionate worship, and Christian fellowship.
 
-## What's Best Next Seminar
-Matt Perman, author of the book *What's Best Next* will be giving a seminar at Zeke's on Saturday.  Three one-hour seminars on time management, email, etc. from a gospel perspective.
+* **When:** September 26-28
+* **Where:** Jordan Park Camp, West Des Moines
+* **Speaker:** Tom Short
+* **Cost:** $30-$45
+* **Website** *http://fallconferencedm.com/*
 
- - **When:** Saturday, April 26th, 9:00am - 12:00pm
- - **Where:** Zeke's
+### Habitat for Humanity Work Day
+Join Habitat for Humanity for a work day!
 
+* **When:** Saturday, Sept 20th, 8:00am-12:00pm
+* **Info:** Contact Matthew Bovenmyer to sign up (*mbovey7@gmail.com*)
 
+## Weekly Events
+* **Friday Night Rock** -- 7:30pm Friday nights at Zeke's Ames (3229 Lincoln Way)
+    * This week's panelist: Matt Heerema
+* **Sunday Morning Church** -- 9:00am and 11:00am Sunday morning at Stonebrook Community Church (3611 Eisenhower Ave)
+    * Current series: The Holy Spirit
+* **Home Group** -- 1:00pm after church on Sundays at the Peck's (1508 Duff Ave)

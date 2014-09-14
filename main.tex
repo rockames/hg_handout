@@ -1,4 +1,5 @@
-\documentclass{leaflet}
+\documentclass[notumble,a4paper]{leaflet}
+\usepackage{graphicx}
 \pagenumbering{gobble} % Suppress page numbering
 \title{\bf East Side Home Group}
 
@@ -11,23 +12,21 @@ The Rock
 
 % Welcome info
 \input{welcome}
+\input{verse}
+
+% Discussion
+\newpage
+\input{discussion}
+
+\newpage
+\section{Notes}
 
 % Song1
 \newpage
 \input{song1}
 
-% Song 2
-\newpage
-\input{song2}
-
-% Song 3
-\newpage
-\input{song3}
-
 % Announcements at end
 \newpage
 \input{announcements}
 
-\newpage
-\section{Notes}
 \end{document}
