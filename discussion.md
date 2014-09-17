@@ -1,41 +1,44 @@
 # Discussion
 
-Our purpose on earth—our overarching mission—is determined by the One who made us.
-We look to him and to his Word to determine why we are here and what we are to do. 
- 
-At Stonebrook, we have articulated this in our Mission and Goal (below).
-This essentially restates what is often called the Great Commandment (Matthew 22:36-40) and the Great Commission (Matthew 28:18-20).
-While this doesn’t give us all the specific details we need to live, it does give us the framework for how we at Stonebrook will try to live life as the Lord has called us to.
-  
-Today our focus will be how God’s purpose for us is lived out in our local church.
-   
-## Reading and discussion
-Read Philippians 1:20-21 and Romans 14:6-8.
-What does Paul tell us about his (and our) purpose for life?
-    
-As Paul did, so we are to integrate every aspect of our lives under the headship of Christ.
-Our jobs, school, family/household, spiritual disciplines (e.g., prayer, Word, fellowship, giving), personal activities (eating, sleeping, preparing meals, mowing the lawn, entertainment, etc.), life in the church—all these are to be integrated in our hearts with Christ as our Head.
-Are there any parts of your life that you don’t consistently put under Christ’s headship?
-If so, what prevents you from doing so?
-     
-Activities at Stonebrook (and at any church) are holy and good, but their familiarity can cause them to become very ordinary and mundane in our hearts.
-Discuss how and why this happens.
-What can we do to keep all things glorious and fresh in our hearts?
-How can we better prepare our hearts as we participate in Body life activities?
-How can we as a small group love one another and serve our world more this Fall?
-      
-Having a vibrant relationship with Christ is key in living the Christian life together.
-Read John 15:4-5.
-How do we abide in Christ?
-Why is this the only way to bear fruit?
-How does this relate to our participation in Body life?
-       
-## Prayer
-Pray for one another that in this next week and month we would all be full of faith, walking in the Spirit, and abiding in Christ as we participate in Body life at Stonebrook.
-Pray for specific personal needs, as well.
-         
-## OUR MISSION    
-Our passion is to love God and all people by living, proclaiming, and teaching the Gospel of Jesus, God’s Messiah.
-           
-## OUR GOAL
-We seek to glorify God by seeing many hundreds of Ames area residents become devoted followers of Jesus Christ, and many thousands hear the Gospel message.
+On Sunday morning Paul Johnson gave the first sermon of a 7 week series on the Holy Spirit, discussing the Who, What, When, Where, and Why of the Holy Spirit.
+
+For myself, one particular encounter with the Holy Spirit stands out among all the others; it was one of my earliest.
+After weeks of consideration, late one Friday night after The Rock I decided to be baptized.
+A few leaders suggested we do it right away, someone else also expressed desire.
+Six weeks earlier, I had put my trust in Christ and positioned him as my Lord.  
+
+As I walked back to my Towers dorm room I remembered my roommate was having a party in our room.
+I felt enormous dread and anxiety, not wanting to explain to a room of half sober college students that I was collecting my things at 10 o'clock on a Friday night to be baptized in a river (well...a creek).
+I can clearly remember the Holy Spirit prompting me to obey God and to trust him with the consequences, whatever they may be. 
+
+ -- Dan Jones
+
+## Who
+Please read Deuteronomy 6:4-5, Mark 1:9-11, and 1 Peter 1:1-2. 
+
+* Who do these passages say the Holy Spirit is?
+* With this identity in mind, what are the consequences of this identify for us?
+
+## What
+Please read 1 Corinthians 12:11, Romans 15:30, and Ephesians 4:30.
+
+* What do these passages tell us about the Holy Spirit and what he does?
+* Is it beneficial that we can interact with the Holy Spirit?
+                    
+## When
+Please read Psalm 51:11, John 14:16-17, Ephesians 1:13-14, and Romans 8:9-10.
+
+* How is the believer’s experience with the Holy Spirit different now from before Christ?
+* Does every believer “have” the Holy Spirit?
+
+## Where
+Please read 1 Corinthians 3:16 and Galatians 5:16-26.
+
+* Where does the Spirit dwell?
+* What are some results of having the Spirit?
+                                        
+## Why
+Please read Acts 1:8, John 14:26, and 2 Timothy 1:14.
+
+* What are some purposes of the Spirit?
+* How has the Holy Spirit affected your life?

@@ -17,6 +17,12 @@ Join Habitat for Humanity for a work day!
 * **When:** Saturday, Sept 20th, 8:00am-12:00pm
 * **Info:** Contact Matthew Bovenmyer to sign up (*mbovey7@gmail.com*)
 
+### Stonebrook Week of Prayer
+Stonebrook’s annual week of prayer will begin with a kickoff prayer meeting, 7:00-8:30 p.m. on September 14. Sign up for a time to pray online.
+
+* **Sign up:** *http://www.stonebrook.org/events/week-of-prayer*
+
+
 ## Weekly Events
 * **Friday Night Rock** -- 7:30pm Friday nights at Zeke's Ames (3229 Lincoln Way)
     * This week's panelist: Matt Heerema
