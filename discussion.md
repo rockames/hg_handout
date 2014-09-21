@@ -1,44 +1,41 @@
 # Discussion
 
-On Sunday morning Paul Johnson gave the first sermon of a 7 week series on the Holy Spirit, discussing the Who, What, When, Where, and Why of the Holy Spirit.
+On Sunday morning, Pastor Dave Bovenmyer gave a sermon entitled “The Helper has Come”.
+He shared a story about losing his keys and cell phone while mowing the lawn.
+After praying and asking the Lord for help, he quickly found his phone on the riding lawn mower, but not his keys.
+He looked throughout the house and all his pockets: no keys.
+He knew they must be in the yard.
+While walking his large yard, he continued to pray.
+An image popped into his head of his keys sitting next to a lilac bush.
+He ignored the thought and kept walking.
+The thought of his keys near the lilac bush kept coming back.
+Eventually he decided enough was enough and checked near the bush!
+And found his keys.
 
-For myself, one particular encounter with the Holy Spirit stands out among all the others; it was one of my earliest.
-After weeks of consideration, late one Friday night after The Rock I decided to be baptized.
-A few leaders suggested we do it right away, someone else also expressed desire.
-Six weeks earlier, I had put my trust in Christ and positioned him as my Lord.  
+## Questions
 
-As I walked back to my Towers dorm room I remembered my roommate was having a party in our room.
-I felt enormous dread and anxiety, not wanting to explain to a room of half sober college students that I was collecting my things at 10 o'clock on a Friday night to be baptized in a river (well...a creek).
-I can clearly remember the Holy Spirit prompting me to obey God and to trust him with the consequences, whatever they may be. 
+* Occasionally we might have situations like this, or we might not.
+Have you ever had something like this happen to you?
 
- -- Dan Jones
+* How do we know when we’re experiencing the Holy Spirit or if something is just coincidence?
 
-## Who
-Please read Deuteronomy 6:4-5, Mark 1:9-11, and 1 Peter 1:1-2. 
+ > And I will ask the Father, and he will give you another Advocate, who will never leave you. He is the Holy 
+ > Spirit, who leads into all truth. The world cannot receive him, because it isn't looking for him and doesn't
+ > recognize him. But you know him, because he lives with you now and later will be in you.
+ > -- John 14:16-17
 
-* Who do these passages say the Holy Spirit is?
-* With this identity in mind, what are the consequences of this identify for us?
+The Holy Spirit gives us an opportunity to be closer to God than any other person.
+We can spend a lot of time with our spouse or close friends, but the Holy Spirit is inside us.
+Sometimes we ignore the Holy Spirit, or just don't sense him in our lives.
+As believers, we should have close fellowship with God through the Holy Spirit.
 
-## What
-Please read 1 Corinthians 12:11, Romans 15:30, and Ephesians 4:30.
+* What are some reasons why we might not have close fellowship?
+* What are some ways we can grow that relationship closer?
 
-* What do these passages tell us about the Holy Spirit and what he does?
-* Is it beneficial that we can interact with the Holy Spirit?
-                    
-## When
-Please read Psalm 51:11, John 14:16-17, Ephesians 1:13-14, and Romans 8:9-10.
+## Even more Questions (if time allows)
+* In what ways does the Spirit's role as the Helper impact your relationship with God?
+How can we cultivate a stronger sense of the recognition of the Spirit's personhood?
+* What are some wrong impressions we may have about how the Holy Spirit guides us?
+What should we do when two believers have conflicting views of what God's will is in a particular situation? 
 
-* How is the believer’s experience with the Holy Spirit different now from before Christ?
-* Does every believer “have” the Holy Spirit?
 
-## Where
-Please read 1 Corinthians 3:16 and Galatians 5:16-26.
-
-* Where does the Spirit dwell?
-* What are some results of having the Spirit?
-                                        
-## Why
-Please read Acts 1:8, John 14:26, and 2 Timothy 1:14.
-
-* What are some purposes of the Spirit?
-* How has the Holy Spirit affected your life?
