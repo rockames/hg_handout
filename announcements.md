@@ -2,21 +2,24 @@
 
 ## Upcoming Events
 
-### Tom Short
-Campus Preacher Tom Short will be in town Tuesday -- Thursday, preaching in front of the Library all afternoon.
-We will be handing out invites from 11:00am -- 12:15pm each day.
-Let us know if you can help out!
+### Thriving at College Seminar
+The Thriving at College workshop will cover the core concepts of Alex's book by the same name.
+It will present a practical roadmap for launching into fruitful, God-honoring adulthood against the backdrop of a young adult culture that values delayed adolescence.
 
-### Fall Conference
-Get ready for three life-changing days of Biblical teaching, passionate worship, and Christian fellowship.
+* **When:** November 8th, 3:00-7:00pm
+* **Where:** Zeke's Ames
+* **Cost:** $15/student (advance - online)
+* **Registration:** *www.stonebrook.org/thriving*
 
-* **When:** September 26-28
-* **Where:** Jordan Park Camp, West Des Moines
-* **Speaker:** Tom Short
-* **Cost:** $30-$45
-* **Website** *http://fallconferencedm.com/*
+### Food at Homegroup
+Food isn't free and it doesn't make itself!
+We try to keep meals cheap (about 1$/meal), and we ask for a suggested donation of $20 to cover your meals for the semester.
 
-[!map][1][12](2251+Fuller+Rd,West+Des+Moines,IA)
+We're also always looking for volunteers to help prepare food and cook!
+Let Brian or Chelsea know if you would be available to help.
 
 ## Weekly Events
- - No Friday Night Rock or Home Group next week due to the conference, but Church will still be on for Sunday if you're in town!
+* **Friday Night Rock** -- 7:30pm Friday nights at Zeke's Ames (3229 Lincoln Way)
+* **Sunday Morning Church** -- 9:00am and 11:00am Sunday morning at Stonebrook Community Church (3611 Eisenhower Ave)
+    * Current series: The Holy Spirit
+* **Home Group** -- 1:00pm after church on Sundays at the Peck's (1508 Duff Ave)

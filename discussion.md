@@ -1,41 +1,29 @@
 # Discussion
+Before Jesus finished his earthly ministry, he told the disciples in John 16:7:
 
-On Sunday morning, Pastor Dave Bovenmyer gave a sermon entitled “The Helper has Come”.
-He shared a story about losing his keys and cell phone while mowing the lawn.
-After praying and asking the Lord for help, he quickly found his phone on the riding lawn mower, but not his keys.
-He looked throughout the house and all his pockets: no keys.
-He knew they must be in the yard.
-While walking his large yard, he continued to pray.
-An image popped into his head of his keys sitting next to a lilac bush.
-He ignored the thought and kept walking.
-The thought of his keys near the lilac bush kept coming back.
-Eventually he decided enough was enough and checked near the bush!
-And found his keys.
+ > ``It is to your advantage that I go away, for if I do not go away, the Helper will not come to you.''
 
-## Questions
+Essentially, he is saying that we are better off to have the Helper, the Holy Spirit.
+This reveals the importance of the Holy Spirit to us, yet we often are either ignorant or misunderstand, or perhaps even underestimate, the Spirit’s presence and role in our lives.
+This series is to go deeper with God through the Spirit. 
 
-* Occasionally we might have situations like this, or we might not.
-Have you ever had something like this happen to you?
+## Read Colossians 1:11-14
 
-* How do we know when we’re experiencing the Holy Spirit or if something is just coincidence?
+We have been saved from the domain of darkness and transferred to the kingdom of the Son, the kingdom of light.
 
- > And I will ask the Father, and he will give you another Advocate, who will never leave you. He is the Holy 
- > Spirit, who leads into all truth. The world cannot receive him, because it isn't looking for him and doesn't
- > recognize him. But you know him, because he lives with you now and later will be in you.
- > -- John 14:16-17
+* What other contrasts are there as part of salvation in Christ, i.e., from what to what?
+* How should these contrasts and our position in Christ affect our view towards life?
+* How are we different than before? 
 
-The Holy Spirit gives us an opportunity to be closer to God than any other person.
-We can spend a lot of time with our spouse or close friends, but the Holy Spirit is inside us.
-Sometimes we ignore the Holy Spirit, or just don't sense him in our lives.
-As believers, we should have close fellowship with God through the Holy Spirit.
+## Read 1 Corinthians 6:9-11 
 
-* What are some reasons why we might not have close fellowship?
-* What are some ways we can grow that relationship closer?
+* How has our identity and standing before God changed?
+* What are the implications and outcome of being washed, sanctified, and justified?
+* How does all this affect our conduct? 
 
-## Even more Questions (if time allows)
-* In what ways does the Spirit's role as the Helper impact your relationship with God?
-How can we cultivate a stronger sense of the recognition of the Spirit's personhood?
-* What are some wrong impressions we may have about how the Holy Spirit guides us?
-What should we do when two believers have conflicting views of what God's will is in a particular situation? 
-
-
+## Read Galatians 5:16-26 
+* Discuss the conflict between the Spirit's desires and our fleshly desires. 
+* Contrast the two lists: the deeds of the flesh and the fruit of the Spirit.
+* How do they differ?
+* How does the Holy Spirit enable us to live fruitful lives?
+* What does it mean to walk by the Spirit (vs. 16,25), live by the Spirit (vs. 25), and be filled with the Spirit (Ephesians 5:19)?
