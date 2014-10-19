@@ -6,9 +6,11 @@
 The Thriving at College workshop will cover the core concepts of Alex's book by the same name.
 It will present a practical roadmap for launching into fruitful, God-honoring adulthood against the backdrop of a young adult culture that values delayed adolescence.
 
-* **When:** November 8th, 3:00-7:00pm
+*Note the new time and price!*
+
+* **When:** November 8th, **6:00-9:00pm**
 * **Where:** Zeke's Ames
-* **Cost:** $15/student (advance - online)
+* **Cost:** $**5**/student (advance - online)
 * **Registration:** *www.stonebrook.org/thriving*
 
 ### Food at Homegroup
