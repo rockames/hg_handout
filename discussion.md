@@ -1,35 +1,40 @@
 # Discussion
-The Holy Spirit is active in every believer’s life, including giving us unique and necessary gifts.
-While gifts may be related to our human talents and abilities, they are more than this, for they are “spiritual” and from the Holy Spirit.
+The believer in Jesus Christ has been sealed with the Holy Spirit of God as a pledge of the glories that are to come.
+He indwells them, literally.
+And he is not just "sittin' around doin' nuthin."
+Instead, he is highly active as he comforts, encourages, teaches, helps, and empowers us.
+How does he do all this?
+Is it only through the miraculous and some clear "voice" we hear?
+We'll study today how the Spirit will guide our lives through the more ordinary means of life, but if we’re not living with a heart of expectancy, we will miss his guidance.
 
 ## Questions
 
-**Read 1 Corinthians 12**
+Read Isaiah 11:2
 
-* In vs. 4-6, Paul addresses an important need.
-We need to understand that we are uniquely gifted, and while all the gifts are from the Lord, we will each have unique affects as we use our gifts.
-Why do we need to understand this? What temptations might we face as we see our differences?
+* What qualities does the Holy Spirit have?
+How then is he a direct help to the believer in Jesus?
 
-* Vs. 7 gives a summary of the purpose of gifts.
-What is it?
-Why do we need to know this?
-What can happen if we forget this?
+Read 2 Peter 1:21 and 2 Timothy 3:16-17.
 
-* In vs. 12-26, Paul challenges us with a number of key attitudes and understandings we need as we work together with all the other “body members” in the body of Christ.
-What are they?
-How can we get off track here?
-Can we overemphasize gifts?
-Underemphasize?
+* The Holy Spirit is the author of Scripture, and the Scriptures are at the center of his guidance of our lives. Give a specific example of how the Spirit has led your life through his Word, e.g., a time when he encouraged or comforted or corrected you. 
 
-* In your group, discuss each other’s gifts.
-What are they?
-How can we discover what they are?
-How can we use them and see greater fruit in the coming years?
+* Discuss ways that we can make the Bible more central to our daily walk with God over the next month. 
 
-\newpage
+* How can others help us do this?
+How can we help others?
+How can we as a small group work together?
+
+Isaiah 11:2 and other passages reveal that the Holy Spirit is all-wise with insights into virtually every problem, situation, and choice we might encounter. 
+
+Read Proverbs 2:1-15.
+
+* How do we gain God’s wisdom? How then does his wisdom guide us in daily decisions, including decisions we must make in choosing good over evil?
+
+* We are commanded to walk by, be led by, live by, keep in step with, and be filled with the Holy Spirit (Galatians 5:16-25 and Ephesians 5:18).
+How does a general trust (faith) in God relate to obeying these commands?
+How do we keep ourselves from a lack of awareness of and expectancy in the Spirit? How does prayer and worship relate to the Spirit’s guidance?
+* Can you think of examples in the Bible where the Lord gave his people direction as they were praying and worshiping?
 
 ## Prayer
 
-Worship the Lord for his power and humility to indwell us with his Spirit, and for his kindness to give each of us believers something special and important.
-Then pray for a greater understanding of our unique contribution to the body and greater fruitfulness.
-Finally, pray for each other in any particular areas that you want to grow in.
+Worship the Lord for his presence, power, and wisdom through the Holy Spirit. Then pray for a greater awareness of and faith in the Lord to lead and guide us by his Spirit. Pray we would learn how to walk in, live by, and grow in.
