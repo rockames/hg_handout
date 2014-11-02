@@ -1,53 +1,63 @@
 # Discussion
-> But I say, walk by the Spirit, and you will not gratify the desires of the flesh...
-> If we live by the Spirit, let us also keep in step with the Spirit. 
-> -- Galatians 5:16,25  ESV  
+The gospel is, in part, a story of suffering.
+From eternity, God had planned to create creatures made in his image.
+These creatures, i.e., us, then rebelled, and so they suffered, receiving a curse from God, the curse of death.
+But God also mercifully sent his Son to suffer and die on our behalf.
+But then the Son rose from the dead to conquer our enemy named death.
 
-Paul (the apostle, not the pastor) commands us in Galatians to walk by the Spirit and live by the Spirit, and yet this may seem somewhat mysterious or vague to us.
-And perhaps some mystery is appropriate because this relationship is with someone that we cannot see or feel.
-But surely walking by the Spirit is more obvious and straightforward than we might first think, for God has commanded us to live this way, and he doesn’t give impossible commands.
+Since then, millions of followers of Jesus Christ have believed and proclaimed this message of suffering and victory—a message that leads to eternal life for anyone who believes it.
+These followers, beginning with the apostles, have been willing to endure suffering for the name of Jesus and for the sake of those who are dying.
+And this willingness should shock and inspire us.  
 
-## Questions 
-The commands in the Bible to walk are not uncommon:   walk by faith, walk in the light, walk in love, walk in good works, and more.
-Walking means that we are moving, going somewhere.  It’s another way to state simply, “live life.”  And it means that we are simply taking one step at a time, and doing this over and over again.  So with this in mind, let’s consider how to walk in the Spirit.
+Today let's study and discuss this topic.
+And let's pray for those currently suffering around the world for the name of Jesus.
+(And if you have time, read the article below.)
 
-Read Colossians 2:6-7.
-Paul here connects the beginning of our relationship with Christ to our ongoing relationship.
-In other words, how we received Christ is instructive on how we are to walk in Christ.
-So let’s start with the day of our salvation.
+## Discussion
+* Read Luke 8:30-39 and Acts 1:8.
+What compels us to speak about Jesus Christ to a dying world?
 
-* What attitudes of mind and heart should we bring before God when we call out to him to save us?
-What views of God?
-Of ourselves?
-* So now connect this to our daily walk with Christ.
-How should we walk in him?
+* Read Matthew 5:10-12 and Acts 5:40-42.
+How are we blessed when we are persecuted for our faith in Jesus?
+What promises does the Lord give to those who suffer?
+How can we grow to have such willingness to endure persecution?
 
-On Sunday, Paul (the pastor, not the apostle) connected Colossians 2:6-7 to our topic of walking by the Spirit, giving us four action points.
-As we discuss these four points, keep in mind the Holy Spirit’s role in our lives.
+* Read Hebrews 10:32-36 and 13:3.
+What are we called to do?
 
-1. Being humble.
-Read 1 Peter 5:5-7.
-How can we walk humbly, acknowledging the presence of the Holy Spirit and living by his power?
-How does the Holy Spirit humble us?
-How does pride change our walk?
-2. Learning and believing the truth.
-Read 2 Timothy 3:16-17.
-The Holy Spirit is the author of the Scriptures, so he will use his words in the Bible to lead and guide us.
-How does acknowledging the Holy Spirit’s wisdom and authority in the Scriptures shape how we learn and believe the truth?
-3. Obeying.
-Read Ephesians 2:8-10;  James 1:22-25.
-The New Testament is clear:  our works do not save us.
-But works and obedience are the fruit of genuine faith.
-For the believer in Christ, what is the difference between obeying in our own power and by the power and wisdom of the Spirit?
-4. Proclaiming.
-Acts 1:8 and Acts 4:19-20.
-How does the Spirit empower us to speak about the Lord?
-What happens to our proclamation if we do not rely upon the Spirit?
+## Prayer
+First, let's pray that the Holy Spirit would increase our compassion for our brothers and sisters suffering for the sake of Jesus, and that we would not be ignorant or cold-hearted towards them.
+Second, let's pray for these believers.
+Particularly, today let's pray for Christians in countries where Islamist extremists are most violent.
+Some of these countries are Iraq, Syria, Egypt, Philippines, Nigeria, Afghanistan, Pakistan, Kenya, and Somalia.
+See below for some prayer requests suggested by Voice of the Martyrs ministry.
+Third, pray that we would have such love for Jesus Christ and people and such boldness that we would proclaim Christ regardless of the consequences.
 
-So with this discussion so far, and combing this with other biblical truth about the Holy Spirit and living out the Christian life, how would you summarize what our lives look like as we walk by the Spirit?
+## Other action steps
+### Be informed.  
+Sign up for regular news updates to pray.
+*www.persecution.com*  (Voice of the Martyrs’ website)
 
-##Prayer
-Worship the Lord for his presence, power, and wisdom through the Holy Spirit.
-Then pray for a greater awareness of his presence and a willingness to be led by him.
-Pray we would learn how to walk in, live by, and be filled with the Spirit.
-Finally, pray for each other in any particular areas that you want to grow in.
+### Donate to help 
+Donate to meet any need.
+Donate to purchase an "Action Pack."  Also, consider writing letters either to or in support of those imprisoned.
+*www.persecution.com* 
+
+## Article
+Check out the article **Christians: Facing Extremist -- Part 2** online at *http://www.persecution.com/*
+(Googling the name of the article will take you there.)
+
+\newpage
+
+### Pray for those suffering for the Gospel
+1. Pray that persecuted believers will sense God's presence.
+2. Pray that they will feel connected to the greater Body of Christ.
+3. Pray that they will be comforted by God when their family members are killed, injured or imprisoned for their witness.
+4. Pray that they will have more opportunities to share the gospel.
+5. Pray for their boldness to make Christ known.
+6. Pray that they will forgive and love their persecutors.
+7. Pray that their ministry activities will remain undetected by authorities or others who wish to silence them.
+8. Pray that they will rejoice in suffering (Acts 5:41).
+9. Pray that they will be refreshed through God's Word and grow in their faith (Eph. 6:17).
+10. Pray that they will be strengthened through the prayers of fellow believers (2 Cor. 1:8-11).
+
