@@ -1,63 +1,30 @@
 # Discussion
-The gospel is, in part, a story of suffering.
-From eternity, God had planned to create creatures made in his image.
-These creatures, i.e., us, then rebelled, and so they suffered, receiving a curse from God, the curse of death.
-But God also mercifully sent his Son to suffer and die on our behalf.
-But then the Son rose from the dead to conquer our enemy named death.
+We are beginning a 3 week series on Heaven.
+Some of the teaching will be "fact checking" the book Heaven by Randy Alcorn.
 
-Since then, millions of followers of Jesus Christ have believed and proclaimed this message of suffering and victory—a message that leads to eternal life for anyone who believes it.
-These followers, beginning with the apostles, have been willing to endure suffering for the name of Jesus and for the sake of those who are dying.
-And this willingness should shock and inspire us.  
+Let's first discuss our perceptions of heaven.
+Think back to your life before Christ.
+What was your perception of heaven?
+How has your perception of heaven changed after you placed your faith in Christ?
 
-Today let's study and discuss this topic.
-And let's pray for those currently suffering around the world for the name of Jesus.
-(And if you have time, read the article below.)
+Thinking about the "logistics" of heaven can sometimes be mentally exhausting.
+The sinful world we live in has tainted our ability to understand how our world would operate without sin, pain, sadness, hunger, greed, etc.
+Dave walked us through a series of old testament passages that discuss heaven (listed below).
+These passages begin to paint a picture of heaven.
+Take some time to read & discuss these passages.   
 
-## Discussion
-* Read Luke 8:30-39 and Acts 1:8.
-What compels us to speak about Jesus Christ to a dying world?
+* Genesis 1:1-2, 26-28, 31; 4:17
+* Isaiah 2:2-4; 11:1-16; 26:19; 60:1-5, 10-14, 18-22; 65:17, 20
+* Daniel 12:1-3;13
+* 2 Peter 3:13
 
-* Read Matthew 5:10-12 and Acts 5:40-42.
-How are we blessed when we are persecuted for our faith in Jesus?
-What promises does the Lord give to those who suffer?
-How can we grow to have such willingness to endure persecution?
+Discuss why it is important for Christians to have a biblical understanding of heaven.
+(Some possible lines of discussion would be the character of God, suffering through trials, witnessing to the lost, etc.)
 
-* Read Hebrews 10:32-36 and 13:3.
-What are we called to do?
-
-## Prayer
-First, let's pray that the Holy Spirit would increase our compassion for our brothers and sisters suffering for the sake of Jesus, and that we would not be ignorant or cold-hearted towards them.
-Second, let's pray for these believers.
-Particularly, today let's pray for Christians in countries where Islamist extremists are most violent.
-Some of these countries are Iraq, Syria, Egypt, Philippines, Nigeria, Afghanistan, Pakistan, Kenya, and Somalia.
-See below for some prayer requests suggested by Voice of the Martyrs ministry.
-Third, pray that we would have such love for Jesus Christ and people and such boldness that we would proclaim Christ regardless of the consequences.
-
-## Other action steps
-### Be informed.  
-Sign up for regular news updates to pray.
-*www.persecution.com*  (Voice of the Martyrs’ website)
-
-### Donate to help 
-Donate to meet any need.
-Donate to purchase an "Action Pack."  Also, consider writing letters either to or in support of those imprisoned.
-*www.persecution.com* 
-
-## Article
-Check out the article **Christians: Facing Extremist -- Part 2** online at *http://www.persecution.com/*
-(Googling the name of the article will take you there.)
+The thought of heaven can be so attractive to us as we are able to dream about a world without sin, pain, & trials.
+Share with one another how the truth of heaven helps you endure/respond to our current world of sin & pain?
 
 \newpage
 
-### Pray for those suffering for the Gospel
-1. Pray that persecuted believers will sense God's presence.
-2. Pray that they will feel connected to the greater Body of Christ.
-3. Pray that they will be comforted by God when their family members are killed, injured or imprisoned for their witness.
-4. Pray that they will have more opportunities to share the gospel.
-5. Pray for their boldness to make Christ known.
-6. Pray that they will forgive and love their persecutors.
-7. Pray that their ministry activities will remain undetected by authorities or others who wish to silence them.
-8. Pray that they will rejoice in suffering (Acts 5:41).
-9. Pray that they will be refreshed through God's Word and grow in their faith (Eph. 6:17).
-10. Pray that they will be strengthened through the prayers of fellow believers (2 Cor. 1:8-11).
-
+## Prayer
+Take time to pray together as a group for a deeper understanding in heaven and to be reminded of God’s goodness.

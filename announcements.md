@@ -2,14 +2,21 @@
 
 ## Upcoming Events
 
-### Upcoming Service Project
-Watch your email/facebook for more information about an upcoming service project next week!
+### Technology and the Glory of God Seminar
+Do you often feel like our computers, phones, and gadgets cause more problems than they solve?
+Do you fear or have you fallen victim to the dangers they pose to our privacy and purity
+?
 
-**When:** Saturday November 8th, 10:30AM
+Technology pervades life.
+It always has.
+How can we use it to glorify God rather than enslave ourselves?
+These are the two options.
 
-### Thriving at College Seminar
-Cost is $5 for students, and you can register at *www.stonebrook.org/thriving*.
-**Info:** November 8th, 6:00-9:00pm @ Zeke's Ames
+We are excited to host authors Tim Challies and Matt Perman to help us think through these issues, and come away equipped to guard against the potential harms and maximize our effectiveness in the use of technology for The Glory of God.
+
+* **When:** December 6th, 1-7pm
+* **Where:** Stonebrook Community Church
+* **Cost:** $25 regular, $10 students
 
 ### Food at Homegroup
 Food isn't free and it doesn't make itself!
@@ -18,5 +25,5 @@ We try to keep meals cheap (about 1$/meal), and we ask for a suggested donation 
 ## Weekly Events
 * **Friday Night Rock** -- 7:30pm Friday nights at Zeke's Ames (3229 Lincoln Way)
 * **Sunday Morning Church** -- 9:00am and 11:00am Sunday morning at Stonebrook Community Church (3611 Eisenhower Ave)
+    * Current Series: Heaven
 * **Home Group** -- 1:00pm after church on Sundays at the Peck's (1508 Duff Ave)
-    * Back to the Peck's again next week!
